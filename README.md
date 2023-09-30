@@ -1,0 +1,1 @@
+# Aykiri-deger-yonetimi
